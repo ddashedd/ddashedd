@@ -11,16 +11,14 @@
 > > **Alert**
 > ```I love leaks```
 
-![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=Kami+is+on+top%3F;Local+sex+offender.)
+![Typing SVG](https://readme-typing-svg.herokuapp.com?duration=2100&color=F7C433&lines=dashed+is+on+top%3F;Local+criminal.)
 
 ### <p align="left">🥴 &nbsp;Socials</p>
 <br>
 <p align="left"><strong>
 
- > **twitter:**
- https://twitter.com/kamidamis
 </strong></p>
 
 
   <a href='(https://github.com/kamihyp)'>
-<img src="https://media1.giphy.com/media/W9MrfVxE4s2Zi/giphy.gif?cid=ecf05e476qsncpoev4p8r14z6xz7j9vlp2xzzmm12fwj7xqn&rid=giphy.gif&ct=g"></code></a>
+<img src="https://media.discordapp.net/attachments/972533899462836334/1080636763619475537/20230301_233107.gif"></code></a>
