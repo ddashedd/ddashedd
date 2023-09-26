@@ -4,8 +4,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=2807F7&width=435&lines=dashedd)](https://git.io/typing-svg)
 
 
-[![DiscordProfileBanner](https://discord.c99.nl/widget/theme-4/713310690538029076.png)](https://discord.com)
-
 > **Warning**
 > This user is a registered criminal.
 > > **Alert**
