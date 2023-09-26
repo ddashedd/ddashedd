@@ -1,7 +1,7 @@
 <a href='(https://github.com/kamihyp)'>
 <img src="https://media.discordapp.net/attachments/972533899462836334/1080636763619475537/20230301_233107.gif"></code></a>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=2807F7&width=435&lines=kamii)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=2807F7&width=435&lines=dashedd)](https://git.io/typing-svg)
 
 
 [![DiscordProfileBanner](https://discord.c99.nl/widget/theme-4/713310690538029076.png)](https://discord.com)
