@@ -1,5 +1,5 @@
 <a href='(https://github.com/kamihyp)'>
-<img src="https://media1.giphy.com/media/W9MrfVxE4s2Zi/giphy.gif?cid=ecf05e476qsncpoev4p8r14z6xz7j9vlp2xzzmm12fwj7xqn&rid=giphy.gif&ct=g"></code></a>
+<img src="https://media.discordapp.net/attachments/972533899462836334/1080636763619475537/20230301_233107.gif"></code></a>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=2807F7&width=435&lines=kamii)](https://git.io/typing-svg)
 
